@@ -1,8 +1,1 @@
-- 👋 Hi, I’m @burialhymn
-- 👀 I’m interested in JJBA, OP.
-- 🌱 I’m currently learning 
-- 📫 How to reach me? Discord (@burialhymn) tiktok (@Invaderzzim)
-- 😄 Pronouns: They/them, or really, idgaf about pronouns just cll me whatever
-- ⚡ Fun fact: I listen too every genre of music
-- 🎤 My favourite music artists is Rebzyyx, dojacat, Ayesha erotica
-- ❌ Dni if: None, everyone is welcome to interact :3
+I AM THE REAL ASHWAGG TRUST ME
